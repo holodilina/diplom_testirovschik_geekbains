@@ -1,1 +1,0 @@
-# diplom_testirovschik_geekbains
